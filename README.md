@@ -13,3 +13,5 @@ https://freedns.afraid.org/subdomain/edit.php?data
 _id=25810002
 
 Sercurly.com.crabdance.com
+
+https://freedns.afraid.org/domain/registry/
