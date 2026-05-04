@@ -18,3 +18,9 @@ https://freedns.afraid.org/domain/registry/
 
 
 https://join.zoho.com/439036019
+
+https://3574.kavellewatches.com/
+
+https://7542.kavellewatches.com/
+
+https://2135.kavellewatches.com/
