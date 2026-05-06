@@ -32,3 +32,13 @@ https://tung.tung.tung.tung.tung.tungtung.tung.sahur.settiermauro.com/
 https://hello-bog-pls-fix-about-blank-thanks.sisfirewall.com.br/
 
 https://hello-bog-pls-fix-about-blank-thanks.sisfirewall.com.br/
+
+https://doc8.tozsugianto.com/
+
+https://doc8.themathdoctors.org/
+
+https://7542.kavellewatches.com/
+
+https://3574.kavellewatches.com/
+
+https://2135.kavellewatches.com/
