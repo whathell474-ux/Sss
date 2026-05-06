@@ -44,3 +44,12 @@ https://3574.kavellewatches.com/
 https://2135.kavellewatches.com/
 
 https://script.google.com/macros/s/AKfycbwqqo2qu8qT_KWNwhFRMIa-IzTs2S3vgH_7Rx14OCM8dSJU_u3TUCC7AMsrTtjo2oG-rQ/exec
+
+https://trufeeeed.b-cdn.net/
+
+
+https://tsissoeasytomake.b-cdn.net/
+
+https://truffisgoodlool.b-cdn.net/
+
+https://ezlinkboi.b-cdn.net/
