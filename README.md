@@ -57,6 +57,9 @@ https://ezlinkboi.b-cdn.net/
 https://timothyaustin.ipv64.net/
 
 https://ilym28pw.boydingles.cfd/ pass user_c0e7c8. 1f372ca2
+https://scratch.mit.edu/projects/1318208314/
+
+https://locations.pro-kickboxing.org/
 
 
 https://rjn7a0t9.frogseducation.life/
