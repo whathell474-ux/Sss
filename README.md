@@ -75,3 +75,7 @@ https://learn-english.b-cdn.net/
 https://tung-sahur-education.b-cdn.net/
 
 https://study-questar.b-cdn.net/
+
+https://doc8.themathdoctors.org/
+
+https://doc8.tozsugianto.com/
