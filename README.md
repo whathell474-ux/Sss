@@ -64,3 +64,11 @@ https://rjn7a0t9.frogseducation.life/
 user_c0e7c8 
 
 https://4loig68i.betterthancbmagic.life/
+
+https://math-articles.b-cdn.net/
+
+https://learn-english.b-cdn.net/
+
+https://tung-sahur-education.b-cdn.net/
+
+https://study-questar.b-cdn.net/
