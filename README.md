@@ -1,4 +1,4 @@
-https://ezlinkboi.b-cdn.net/
+87https://ezlinkboi.b-cdn.net/
 
 https://trufeeeed.b-cdn.net/
 
@@ -81,3 +81,5 @@ https://doc8.themathdoctors.org/
 https://doc8.tozsugianto.com/
 
 https://yzxdl646.ilovesupxr.cfd/
+
+http://clever.jansenmedical.net/
